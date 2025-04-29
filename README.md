@@ -1,6 +1,6 @@
 ===================================================================================
 
-PELE COM PELE (2024-2025)
+Aquele que transborda (2024-2025)
 Por: Caio Tikaraishi Pierangeli
 Para Violão e eletrônica em tempo real
 
